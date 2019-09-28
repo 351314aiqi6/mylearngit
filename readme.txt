@@ -1,4 +1,4 @@
 laskdfjklasdjfklasdjasdfasdfadsdfadsf
 zengbo
 niubi niubi
-Createing a new branch isj quick @ simple
+crateing a new branch is quick and simple
